@@ -8,6 +8,6 @@
 - Interests: The Lion King, Greek Mythology, Wild Krats, Octonauts
 - Hobbies: writing stories, drawing, listening to music
 
-# CN19 Sofia Margaret M. Bengco
+# Sofia Margaret M. Bengco
 - clairo truther
 - i like genshin and ao3
