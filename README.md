@@ -5,4 +5,5 @@
 - very cool
 
 # Caliyah Roe L. Atencio
--I love The Lion King and Greek Mythology
+- Interests: The Lion King, Greek Mythology, Wild Krats, Octonauts
+- Hobbies: writing stories, drawing, listening to music
