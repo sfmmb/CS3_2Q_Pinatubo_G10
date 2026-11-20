@@ -3,3 +3,6 @@
 # Ezekiel Javier L. Bermido
 - i like jazz
 - very cool
+
+# Caliyah Roe L. Atencio
+-I love The Lion King and Greek Mythology
